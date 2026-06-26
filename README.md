@@ -2,9 +2,9 @@
 
 
 - Gosto de filmes 👽
-- Gosto de Harry Potter e do Batman🦇
-- #AMO videogame 👾
-- Sou um otimo estundade🧑‍🎓
+- Gosto formula 1 🏎️
+- #AMO jogar videogame 👾
+- Sou um estundade🧑‍🎓
 - Gosto de astronomia 🛰️
 
 
